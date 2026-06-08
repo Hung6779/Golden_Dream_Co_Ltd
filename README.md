@@ -1,1 +1,1 @@
-# Golden_Dream_Co_Ltd
+# Golden Dream Co., Ltd. – Consumer Goods, Cosmetics & Essential Oils
